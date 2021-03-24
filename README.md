@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bjseulyun
+- 👀 I’m interested in coding py
+- 🌱 I’m currently learning noe
+- 💞️ I’m looking to collaborate on py
+- 📫 How to reach me ...hmmm
